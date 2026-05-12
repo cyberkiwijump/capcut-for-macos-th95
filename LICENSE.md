@@ -1,4 +1,4 @@
-# 
+# premium CapCut for macOS Script | text-animation + stock-assets-integration offers the most advanced CapCut for macOS script, with text-animation and stock-assets-integration.
 
 
 
